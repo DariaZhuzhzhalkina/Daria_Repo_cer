@@ -1,0 +1,1 @@
+Zoznam certifikatov a kurzov  
